@@ -1,4 +1,7 @@
-##  ✩‧₊⋆ ✮ ⋆ ✩‧₊⋆ ✮ ⋆ ✩‧₊⋆ ✮ ⋆ ✩‧₊⋆ 
+##  Khrysla Ruiz
+
+- 💻 Sistemas de Informação - UNIRIO
+- 📭 khryslar@gmail.com
 
 <div align="center">
     <a href"https://github.com/khrysruizs">
