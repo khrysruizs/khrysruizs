@@ -1,4 +1,4 @@
-##  Khrysla Ruiz
+##  Khrys Ruiz
 
 - 💻 Sistemas de Informação - UNIRIO
 - 📭 khryslar@gmail.com
